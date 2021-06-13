@@ -4,5 +4,5 @@
 - 💞️ I’m looking for a job 
 - 📫 How to reach me 1361697944@qq.com
 
-THANK YOU
-# SWCHEN IS MY BEST WORK
+☺ FUC(function) KXHQ(keep x high quality)
+SWCHEN IS MY BEST WORK AND I hate bureaucracy
