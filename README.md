@@ -4,4 +4,4 @@
 - 💞️ I’m looking for a job 
 - 📫 How to reach me 1361697944@qq.com
 
-THANK YOU I need a job
+THANK YOU
