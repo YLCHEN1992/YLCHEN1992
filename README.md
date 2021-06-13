@@ -9,3 +9,5 @@
 # Industry...
 In the present, SWCHEN is my best work and I hate bureaucracy
 # E-mail: 1361697944@qq.com
+# Support me THANKS
+https://ylchen-swchen.lofter.com/post/4b6b96bc_1cafbff94
