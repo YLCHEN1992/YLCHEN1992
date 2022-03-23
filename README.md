@@ -5,6 +5,7 @@
 - 💞️ I’m looking for a job 
 - 📫 How to reach me 1361697944@qq.com 
 - ORCID iD:0000-0001-9697-5088
+- https://orcid.org/0000-0001-9697-5088
 
 ☺ FUC(function) KXHQ(keep x high quality) ☺
 # Industry...
