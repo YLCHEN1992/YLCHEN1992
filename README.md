@@ -7,6 +7,9 @@
 - ORCID iD:0000-0001-9697-5088
 - https://orcid.org/0000-0001-9697-5088
 
+# Feel free to buy me a cup of coffee, so I can stay motivated and keep updating this project.
+https://ylchen-swchen.lofter.com/post/4b6b96bc_1cafbff94
+
 ☺ FUC(function) KXHQ(keep x high quality) ☺
 # Industry...
 In the present, SWCHEN is my best work and I hate bureaucracy
