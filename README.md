@@ -16,6 +16,5 @@
 In the present, SWCHEN is my best work and I hate bureaucracy
 # E-mail: 1361697944@qq.com
 # Support me THANKS by follow websites
-[CLICK TO SUPPORT](http://120.48.114.168/home.html)
-![image](http://120.48.114.168/APAY.jpg)
+[中国支付宝 CLICK TO SUPPORT](http://120.48.114.168/home.html)
 ![image](http://120.48.114.168/labp.png)
