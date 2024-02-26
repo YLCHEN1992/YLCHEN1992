@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @YLCHEN1992
 - 👀 I’m interested in bioinformatics and biology
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking for a job 
+- 💞️ 
 - 📫 How to reach me 1361697944@qq.com 
 - ORCID iD:0000-0001-9697-5088
 - [My ORCID](https://orcid.org/0000-0001-9697-5088)
