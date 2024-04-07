@@ -9,7 +9,7 @@
 
 # Feel free to buy me a cup of coffee, so I can stay motivated and keep updating
 ![image](http://ylchen.cn/APAY.jpg)
-![image](http://ylchen.cn/labp.png)
+![image](http://ylchen.cn/labp.jpg)
 
 ☺ FUC(function) KXHQ(keep x high quality) ☺
 # Industry...
