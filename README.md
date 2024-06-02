@@ -13,6 +13,6 @@
 
 ☺ FUC(function) KXHQ(keep x high quality) ☺
 # Industry...
-# E-mail: admin@ylchen.com
+# E-mail: admin@ylchen.cn
 
 
